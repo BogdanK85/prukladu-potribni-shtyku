@@ -1,0 +1,1 @@
+# prukladu-potribni-shtyku
